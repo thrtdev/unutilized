@@ -1,3 +1,3 @@
 - 🚀 FermiumMC creator, Game developer
 - 🖼️ Looking for a pixelart artist
-- ✉️ Discord @unutilized#0404 <390166573773619201>
+- ✉️ Discord @fedber#5242 <390166573773619201>
